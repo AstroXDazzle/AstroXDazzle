@@ -6,4 +6,8 @@
 
 $\texttt{\color{#99eeff}the irl astro}$
 
+<details>
+<summary>$\texttt{\color{#d1f7ff}the coolest}$ </summary>
+
+  </details>
 </div>
