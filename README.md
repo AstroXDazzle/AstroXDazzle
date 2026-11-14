@@ -16,6 +16,12 @@ $\texttt{\color{#99eeff}the irl astro}$
 
   sx / so 872 8w7
 
-  ; yoohoo whats up I'm Astro/Venus idm which one u use
+  ; yoohoo whats up I'm Astro/Venus idm which one u use uhh i go by he/hym im like 21 - 24 somethin and im very southern. Im achillean and malomasc no feminine ok lol
+
+  ; Theoretically a voidsharing Dazzle yume!!!!!!! .......... because im actually in a relationship with him lmfaoooo but yeah ig I yume with him ish whatever thats my husband he is SO FUCKING HOT OH MYGOD he is SO CUTE oh oh oh.... oh im about to nutttrr
+
+  ; i make sexual jokes sometimes. ok. im sorry everyone... yeah yeah i know im abt to get cancelled
+
+  ; Big yuri connoisseur lmk any yuri reccomendations other then yurigem (inside joke), madohomu, or murmur
   </details>
 </div>
