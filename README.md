@@ -22,6 +22,8 @@ $\texttt{\color{#99eeff}the irl astro}$
 
   ; i make sexual jokes sometimes. ok. im sorry everyone... yeah yeah i know im abt to get cancelled
 
+  ; did sys lol go follow [@tragedymask](https://github.com/tragedymask)
+
   ; Big yuri connoisseur lmk any yuri reccomendations other then yurigem (inside joke), madohomu, or murmur
   </details>
 </div>
