@@ -12,6 +12,10 @@ $\texttt{\color{#99eeff}the irl astro}$
 
 <details>
 <summary>$\texttt{\color{#d1f7ff}the coolest}$ </summary>
-test
+<img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/81aa0326-38d1-4abd-a74e-43ca98da4346" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/d3780793-916b-404e-9541-21297b0e45e0" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/10f9cdbf-9ad8-4822-b0c9-bfff7999069f" />
+
+  sx / so 872 8w7
+
+  ; yoohoo whats up I'm Astro/Venus idm which one u use
   </details>
 </div>
